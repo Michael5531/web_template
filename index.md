@@ -1,1 +1,3 @@
-## 邱宇好顶 顶到我溢出
+# Welcome to Ruoyang Michael Lu 's page
+
+So glad we can meet each other in this amazing internet world :)
